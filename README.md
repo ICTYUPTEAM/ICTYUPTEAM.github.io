@@ -1,2 +1,0 @@
-# ICTYUPTEAM.github.io
- d
